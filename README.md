@@ -1,2 +1,2 @@
 ## Hi there 👋
-Поддержать мои проекты можно на [Boosty](https://boosty.to).
+Поддержать мои проекты можно на [Boosty](https://boosty.to/ronovamain/donate).
